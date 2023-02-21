@@ -1,3 +1,3 @@
 _Write a question for your teacher below._
 
-Q: Hello, how much would the extra credit assignment be worth? Thank you.
+Q: Hello, how many points are deducted for a late assignment? Sorry for the inconvenience.
